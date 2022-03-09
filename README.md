@@ -1,0 +1,1 @@
+# FavoritePlaces.github.io
